@@ -40,5 +40,3 @@ https://youtu.be/_M1pNpr31Qc
 #engineeringlife 
 #electric 
 #electrical
-
-
